@@ -1,0 +1,1 @@
+# technomed.uz
